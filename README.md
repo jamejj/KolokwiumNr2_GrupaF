@@ -1,0 +1,1 @@
+# KolokwiumNr2_GrupaF
